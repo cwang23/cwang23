@@ -2,7 +2,7 @@
 Pronouns: she/her/hers
 
 I'm interested in:
-- 🌏 International Relations & Politics
+- 🌏 International Relations and Politics
 - 🔒 Data Privacy and Security
 - 🌞 Data for Good
 
