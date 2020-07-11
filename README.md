@@ -1,6 +1,10 @@
-### Hi I'm Clara! 👋
+### Hi, I'm Clara! 👋
 Pronouns: she/her/hers
 
+I'm interested in:
+- 🌏 International Relations & Politics
+- 🔒 Data Privacy and Security
+- 🌞 Data for Good
 
 
 <!--
